@@ -1,2 +1,2 @@
 # 3lmontiii.github.io
-personal portfolio art
+personal portfolio artistico
